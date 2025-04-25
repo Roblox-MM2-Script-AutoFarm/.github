@@ -63,11 +63,11 @@ Unlock your full potential in Murder Mystery 2 with this powerful Roblox MM2 Scr
 *See players and weapons through walls for maximum advantage*
 
 2. Auto Farm Script in Action  
-![Auto Farm](https://rbxscript.com/images/11-image.png)  
+![Auto Farm](https://i.ytimg.com/vi/MVpq87kaID4/sddefault.jpg)  
 *Fully automated coin and XP collection loop*
 
 3. Kill All Button  
-![Kill All](https://cheater.fun/uploads/posts/2023-07/murder-mystery-2-scripts.webp)  
+![Kill All](https://cdn.cheat.gg/images/5fcd30105c615.jpg)  
 *End the match in one click when you're the murderer*
 
 ---
